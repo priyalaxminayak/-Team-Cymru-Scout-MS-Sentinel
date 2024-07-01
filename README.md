@@ -1,1 +1,0 @@
-# -Team-Cymru-Scout-MS-Sentinel
